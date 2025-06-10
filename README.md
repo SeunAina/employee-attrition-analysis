@@ -68,6 +68,4 @@ Let's work together! Reach out to me on
 📧 Email: seunainaa@gmail.com  
 - 💼 [LinkedIn](https://www.linkedin.com/in/ainaoluwaseun/)
 - 📞 +2349160329755 
-for custom Power BI dashboard solutions.
-
 ---
